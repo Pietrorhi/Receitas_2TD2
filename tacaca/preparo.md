@@ -1,4 +1,4 @@
-#Modo de preparo
+# Modo de preparo
 
 1 - Em uma panela, adicione o tucupi, o alho, a chicória, o sal e as pimentas e leve ao fogo.
 
